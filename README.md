@@ -1,3 +1,3 @@
 # Hello.
-## I love the UK.
-## The United Kingdom of Great Britain and Northern Ireland is the best country!
+## I love the Σ:3.
+## The Σ:3 is the best Σ:3!
